@@ -5,4 +5,4 @@ Glizzys discord
 https://discord.gg/RTseVPF8MA
 
 Glizzys twitter 
-twitter.com/glizuwu
+https://twitter.com/glizuwu
