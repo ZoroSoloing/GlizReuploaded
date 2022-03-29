@@ -1,2 +1,8 @@
 # GlizReuploaded
-Glizzy blooket hacks reuploaded
+I did not code any of these hacks. They were all made by glizzy.
+
+Glizzys discord
+https://discord.gg/RTseVPF8MA
+
+Glizzys twitter 
+twitter.com/glizuwu
